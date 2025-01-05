@@ -1,7 +1,7 @@
 | ![1659281382943](https://github.com/user-attachments/assets/a9cad302-864e-46b3-a3ad-fd0070efd7cb) | [**Youtube Music Vanced Apk**](https://youtubevanced.su/)  |
 |:-------------------------------------------------:|-----------------------|
 | **Platform**: Android 5.0+                       | **Version**: v19.47.53     |
-| **Size**: 101 MB MB                                  | ⭐⭐⭐⭐⭐ (5/5) |
+| **Size**: 101 MB                               | ⭐⭐⭐⭐⭐ (5/5) |
 ## Introduction
 YouTube is currently the most popular video sharing site. YouTube, with 2.6 billion active users per month, is the world's largest video-sharing website and second-largest social media network. However, the official YouTube app lacks some useful functions. And here's where Youtube Vanced comes in. If you're seeking for YouTube Vanced APK, you've come to the correct spot. Youtube Vanced is a customized version of the original app that is superior in every way and has no advertisements.
 
